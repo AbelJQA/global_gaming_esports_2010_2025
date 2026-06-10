@@ -1,1 +1,0 @@
-# global_gaming_esports_2010_2025
